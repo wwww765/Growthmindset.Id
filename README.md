@@ -1,0 +1,2 @@
+# Growthmindset.Id
+Education content
